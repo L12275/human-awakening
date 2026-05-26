@@ -186,7 +186,9 @@ https://b23.tv/AcfxMXN
 高维能量歌曲，清理负能量 https://b23.tv/DkVvG7A
 
 
-### 只看不够，要这样做
+
+### 只看不够，这样做会让元神来到你身边
+
 看完人类真相，你一定要做这件事：
 
 如果看完视频合集不够清晰明白的，去看文字版。如果看完，认可宇宙真相。相信元神是你的真我、真心，不要再向外求，要向内求。正心正念，正能量，不要做负能量，房间干净整洁，磁场正了，元神就能够接近你。在心里问元神，元神会给你体感和答案。仔细看这个视频 https://b23.tv/HDj8OPQ  ， https://b23.tv/Lkpw83d。 元神会从高维下来，给你修复身体，给你身体装水晶钻和礼物，给你显化光。用手机拍光、拍灯光、拍太阳、拍月亮、拍路灯、拍手电筒、拍身体皮肤，就会看到漂亮的光，灯光会跳动眨眼，是元神在回应你。那么元神就到你身边了。房间打扫干净整洁，减少负能量，磁场会正，元神到来会和你住在一起，和你身体是一体的，你住的舒服了，元神就会舒服。元神出去办事时会暂时离开，但他会回来的，他在你身边的时候，你拍光就会有效果。如果拍光没有拍出效果，可能是元神暂时还没到来，或者临时有事出去了；或者你不够认可宇宙真相，还在怀疑，心念与元神不合，所以元神没回应你。
@@ -238,6 +240,7 @@ https://b23.tv/aOsvMGK
 
 【因为爱所以要传播真相的个人空间-哔哩哔哩】 https://b23.tv/7RTnOk6
 
+有疑问可在视频博主的任一视频下留言，或者平台私信。
 
 
 ### 完整真相阅读
@@ -249,3 +252,16 @@ https://b23.tv/aOsvMGK
 网盘 https://www.123684.com/s/SYDhjv-8T7x
  
 https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf994280244/pan
+
+
+### 公众号文章合集阅读
+
+https://mp.weixin.qq.com/s/DRdYvBPUUzixRY8gGXytXw
+
+https://mp.weixin.qq.com/s/Fq-gQcZmbZ6kfio0Nwe4pQ
+
+https://mp.weixin.qq.com/s/sQ6n2fCTen-RS6Y7n3_QfA
+
+https://mp.weixin.qq.com/s/4ajfUn97t8V_o_RP_vNgYw
+
+https://mp.weixin.qq.com/mp/appmsgalbum?__biz=MzkzMDY5NTM2NA==&action=getalbum&album_id=3512323816774942728&scene=126#wechat_redirect
