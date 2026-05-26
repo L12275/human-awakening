@@ -82,7 +82,6 @@ https://b23.tv/M4FMnux
 
 
 
-
 ### 觉醒
 
 宇宙真相（上） https://b23.tv/Iv96kn5
@@ -123,12 +122,12 @@ https://b23.tv/M4FMnux
 
 科学的尽头是光学 https://b23.tv/ENAsHA0
 
-"元在高维都做些什么？2023.5.25语音 https://b23.tv/5xZ84eq"
+元在高维都做些什么 2023.5.25语音 https://b23.tv/5xZ84eq
 
 答疑 https://b23.tv/I3wnQbl
 
 
-### 元神与你显化拍光
+### 元神与你显化排光
 
 真正有元神的人，是可以随心显化各种颜色的光的，也都是有能量。https://b23.tv/whpw982
 
@@ -247,4 +246,6 @@ https://b23.tv/aOsvMGK
 
 此网站里的文档已全部下载到网盘和仓库，可下载阅读。
 
-https://www.123684.com/s/SYDhjv-8T7x
+网盘 https://www.123684.com/s/SYDhjv-8T7x
+ 
+https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf994280244/pan
