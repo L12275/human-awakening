@@ -199,6 +199,7 @@ https://b23.tv/AcfxMXN
 
 
 ### 与元神心通
+
 如何练习心通？https://b23.tv/577AIli
 
 当我们遇到问题的时候，第一直觉就是我们的真心给出的正确信号，直觉就是心通。https://b23.tv/jy80QsJ
@@ -256,12 +257,23 @@ https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf99
 
 ### 公众号文章合集阅读
 
+内容较多的部分公众号，微信上搜索
+
+《光之归途·本源》《大同之光》《高维的爱》《明理觉醒》《本源的爱》
+
+
+部分文章
+
 https://mp.weixin.qq.com/s/DRdYvBPUUzixRY8gGXytXw
 
 https://mp.weixin.qq.com/s/Fq-gQcZmbZ6kfio0Nwe4pQ
 
+https://mp.weixin.qq.com/s/h0_5ICuSKBW3PzOIlLL4Cw
+
 https://mp.weixin.qq.com/s/sQ6n2fCTen-RS6Y7n3_QfA
 
 https://mp.weixin.qq.com/s/4ajfUn97t8V_o_RP_vNgYw
+
+https://mp.weixin.qq.com/s/En7d5lzC2PFu1y9MjwMWEg
 
 https://mp.weixin.qq.com/mp/appmsgalbum?__biz=MzkzMDY5NTM2NA==&action=getalbum&album_id=3512323816774942728&scene=126#wechat_redirect
