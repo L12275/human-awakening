@@ -132,11 +132,12 @@ https://b23.tv/M4FMnux
 
 元在高维都做些什么 2023.5.25语音 https://b23.tv/5xZ84eq
 
-答疑 https://b23.tv/I3wnQbl
+答疑
+https://b23.tv/I3wnQbl
 
 
 
-### 元神与你显化排光
+### 元神与你显化拍光
 
 真正有元神的人，是可以随心显化各种颜色的光的，也都是有能量。https://b23.tv/whpw982
 
