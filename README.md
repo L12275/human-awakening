@@ -10,7 +10,11 @@ https://b23.tv/neD1tJu
 
 https://awakeningtheworld.cn
 
-此网站里的文档已全部下载到网盘和仓库，可下载阅读。
+### 唯一的宇宙和人类真相.pdf（完整阅读版）
+
+https://maipdf.cn/file/dt6a1861e47b466/pdf
+
+此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
 
 网盘 https://www.123684.com/s/SYDhjv-8T7x
 
@@ -203,6 +207,8 @@ https://b23.tv/AcfxMXN
 
 【如果觉得我们只是在拍光？错了，我们是能与光体对话的，而且身体里都是水晶能量。】 https://b23.tv/BwfOMjB
 
+元神什么时候来？ https://b23.tv/U6QWeeH
+
 
 ### 与元神心通
 
@@ -214,6 +220,7 @@ https://b23.tv/aOsvMGK
 
 
 ### 中立？
+
 【玄幻答疑—致中立者】https://b23.tv/FbXyYqc
 
 
@@ -247,7 +254,7 @@ https://b23.tv/aOsvMGK
 
 【因为爱所以要传播真相的个人空间-哔哩哔哩】 https://b23.tv/7RTnOk6
 
-有疑问可在视频博主的任一视频下留言，或者平台私信。
+有疑问的话，可以在视频博主的任何一个视频下留言，或者通过平台私信。
 
 
 ### 完整真相阅读
@@ -255,7 +262,11 @@ https://b23.tv/aOsvMGK
 网站文字版：https://awakeningtheworld.cn
 
 （上方的视频版的内容均取自文字版）
- 
+
+此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
+
+网盘 https://www.123684.com/s/SYDhjv-8T7x
+
 https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf994280244/pan
 
 
