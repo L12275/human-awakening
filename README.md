@@ -135,6 +135,7 @@ https://b23.tv/M4FMnux
 答疑 https://b23.tv/I3wnQbl
 
 
+
 ### 元神与你显化排光
 
 真正有元神的人，是可以随心显化各种颜色的光的，也都是有能量。https://b23.tv/whpw982
@@ -219,6 +220,7 @@ https://b23.tv/AcfxMXN
 https://b23.tv/aOsvMGK
 
 
+
 ### 中立？
 
 【玄幻答疑—致中立者】https://b23.tv/FbXyYqc
@@ -262,6 +264,10 @@ https://b23.tv/aOsvMGK
 网站文字版：https://awakeningtheworld.cn
 
 （上方的视频版的内容均取自文字版）
+
+唯一的宇宙和人类真相.pdf（完整阅读版）
+
+https://maipdf.cn/file/dt6a1861e47b466/pdf
 
 此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
 
