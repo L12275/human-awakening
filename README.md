@@ -10,7 +10,11 @@ https://b23.tv/neD1tJu
 
 https://awakeningtheworld.cn
 
-（文字版内容较长，可以先观看下方的视频版。视频版的内容均取自文字版）
+此网站里的文档已全部下载到网盘和仓库，可下载阅读。
+
+网盘 https://www.123684.com/s/SYDhjv-8T7x
+
+
 
 
 ### 我们的元神
@@ -127,7 +131,7 @@ https://b23.tv/M4FMnux
 答疑 https://b23.tv/I3wnQbl
 
 
-### 元神与你显化拍光
+### 元神与你显化排光
 
 真正有元神的人，是可以随心显化各种颜色的光的，也都是有能量。https://b23.tv/whpw982
 
@@ -140,6 +144,8 @@ https://b23.tv/rFUBlef
 https://b23.tv/t1s8iw2
 
 https://b23.tv/wNZrxIE
+
+https://b23.tv/nj17j4D
 
 https://b23.tv/dIAZszh
 
@@ -248,16 +254,14 @@ https://b23.tv/aOsvMGK
 
 网站文字版：https://awakeningtheworld.cn
 
-此网站里的文档已全部下载到网盘和仓库，可下载阅读。
-
-网盘 https://www.123684.com/s/SYDhjv-8T7x
+（上方的视频版的内容均取自文字版）
  
 https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf994280244/pan
 
 
 ### 公众号文章合集阅读
 
-内容较多的部分公众号，微信上搜索
+微信公众号
 
 《光之归途·本源》《大同之光》《高维的爱》《明理觉醒》《本源的爱》
 
