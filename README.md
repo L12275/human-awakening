@@ -6,6 +6,8 @@
 
 https://b23.tv/neD1tJu
 
+https://v.douyin.com/HG3DV8KZWdY/
+
 ### 完整文字版网站（详细）
 
 https://awakeningtheworld.cn
