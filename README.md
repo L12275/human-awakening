@@ -20,7 +20,7 @@ https://maipdf.cn/file/dt6a1861e47b466/pdf
 
 网盘 https://www.123684.com/s/SYDhjv-8T7x
 
-<img width="4096" height="5461" alt="img_v3_0212a_b1694ba3-c4a2-457c-b8ab-9f5b6405360g" src="https://my.feishu.cn/docx/JrThdZaZao51fUxtDoFcKAlanAe#share-TSpkdk0kwo9LrBxz1axcDGNXn9g" />
+<img width="4096" height="5461" alt="image" src="https://github.com/user-attachments/assets/2162f0ae-c0ba-489d-82a2-da47c25c25e6" />
 <img width="4096" height="5461" alt="img_v3_0212a_3965a845-1139-405f-8c79-595fdb3f2d3g" src="https://github.com/user-attachments/assets/fa5f9d95-dbf4-4a32-8f37-7cc201c0cc76" />
 
 <img width="862" height="2524" alt="长截图_20260603_155636" src="https://github.com/user-attachments/assets/62b40f32-7885-4d42-b639-9f2f9291fdf0" />
@@ -64,7 +64,6 @@ https://b23.tv/M4FMnux
 
 关于太阳晒伤 https://b23.tv/vCorf5Z
 
-<img width="862" height="2524" alt="长截图_20260603_155636" src="https://github.com/user-attachments/assets/62b40f32-7885-4d42-b639-9f2f9291fdf0" />
 
 
 ### 救世
