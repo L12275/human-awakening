@@ -241,7 +241,7 @@ https://b23.tv/aOsvMGK
 
 
 
-### 如果选择中立，你在观望，元神会离开你，元神也会观望你
+### 如果选择中立，你在观望，元神会离开你，元神也在观望你
 
 【玄幻答疑—致中立者】https://b23.tv/FbXyYqc
 
@@ -287,7 +287,7 @@ https://b23.tv/aOsvMGK
 
 唯一的宇宙和人类真相.pdf（完整阅读版）
 
-https://maipdf.cn/file/dt6a1861e47b466/pdf
+[唯一的宇宙和人类真相 中国神话 历史真相 人物故事（新）.pdf](https://awakeningtheworld.cn/wp-content/uploads/2025/08/367e9a1b5e58fafe4bba5e8af81e6988ee79a84e5ae87e5ae99e79c9fe79bb88.0.pdf)
 
 此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
 
@@ -318,3 +318,5 @@ https://mp.weixin.qq.com/s/4ajfUn97t8V_o_RP_vNgYw
 https://mp.weixin.qq.com/s/En7d5lzC2PFu1y9MjwMWEg
 
 https://mp.weixin.qq.com/mp/appmsgalbum?__biz=MzkzMDY5NTM2NA==&action=getalbum&album_id=3512323816774942728&scene=126#wechat_redirect
+
+收藏此页面，你可以转发给家人朋友阅读
