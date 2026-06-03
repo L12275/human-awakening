@@ -6,13 +6,11 @@
 
 https://b23.tv/neD1tJu
 
-https://v.douyin.com/HG3DV8KZWdY/
-
 ### 完整文字版网站（详细）
 
 https://awakeningtheworld.cn
 
-### 唯一的宇宙和人类真相.pdf（完整阅读版）
+唯一的宇宙和人类真相.pdf（完整阅读版）
 
 https://maipdf.cn/file/dt6a1861e47b466/pdf
 
@@ -231,7 +229,7 @@ https://b23.tv/aOsvMGK
 
 
 
-### 中立？
+### 如果选择中立，你在观望，元神会离开你，元神也会观望你
 
 【玄幻答疑—致中立者】https://b23.tv/FbXyYqc
 
