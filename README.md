@@ -18,7 +18,8 @@ https://awakeningtheworld.cn
 
 网盘 https://www.123684.com/s/SYDhjv-8T7x
 
-内容预览
+内容预览（不是小说）
+
 <img width="862" height="2524" alt="image_compressed" src="https://github.com/user-attachments/assets/99bfda10-5512-4731-b1be-d440b3a6669b" />
 <img width="4096" height="5461" alt="20260603-154051_compressed (1)" src="https://github.com/user-attachments/assets/d732f118-674f-4888-adc4-0bf2b65752ea" />
 <img width="4096" height="5461" alt="20260603-154104_compressed (1)" src="https://github.com/user-attachments/assets/33e3e7b0-214c-4210-9bb4-4639a5e25b97" />
