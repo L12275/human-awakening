@@ -12,7 +12,7 @@ https://awakeningtheworld.cn
 
 唯一的宇宙和人类真相.pdf（完整阅读版）
 
-下载阅读 [唯一的宇宙和人类真相 中国神话 历史真相 人物故事（新）.pdf](https://awakeningtheworld.cn/wp-content/uploads/2025/08/367e9a1b5e58fafe4bba5e8af81e6988ee79a84e5ae87e5ae99e79c9fe79bb88.0.pdf)
+下载阅读 [唯一的宇宙和人类真相 中国神话 历史真相 人物故事（完整）.pdf](https://awakeningtheworld.cn/wp-content/uploads/2025/08/367e9a1b5e58fafe4bba5e8af81e6988ee79a84e5ae87e5ae99e79c9fe79bb88.0.pdf)
 
 在线阅读 https://awakeningtheworld.cn/救世回顾/index.html
 
