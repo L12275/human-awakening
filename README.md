@@ -25,14 +25,6 @@ https://maipdf.cn/file/dt6a1861e47b466/pdf
 <img width="4096" height="5461" alt="20260603-154104_compressed (1)" src="https://github.com/user-attachments/assets/33e3e7b0-214c-4210-9bb4-4639a5e25b97" />
 
 
-
-
-<img width="4096" height="5461" alt="image" src="https://github.com/user-attachments/assets/2162f0ae-c0ba-489d-82a2-da47c25c25e6" />
-<img width="4096" height="5461" alt="img_v3_0212a_3965a845-1139-405f-8c79-595fdb3f2d3g" src="https://github.com/user-attachments/assets/fa5f9d95-dbf4-4a32-8f37-7cc201c0cc76" />
-
-<img width="862" height="2524" alt="长截图_20260603_155636" src="https://github.com/user-attachments/assets/62b40f32-7885-4d42-b639-9f2f9291fdf0" />
-
-
 ### 我们的元神
 
 魂魄和元神的区别 https://b23.tv/zQqXP4z
@@ -100,6 +92,16 @@ https://b23.tv/M4FMnux
 这是我们的最后一世轮回 https://b23.tv/5QFvBuw
 
 东方圣人，一人救天下 https://b23.tv/Ped7hce
+
+
+<img width="884" height="1552" alt="image (1)_compressed" src="https://github.com/user-attachments/assets/34a7a3a8-6805-461a-aee2-fccc2d30ba3a" />
+<img width="882" height="1250" alt="image (2)_compressed" src="https://github.com/user-attachments/assets/07cd2ac1-0ca3-4df1-be49-74f52e6857f0" />
+<img width="877" height="1394" alt="image(3)_compressed" src="https://github.com/user-attachments/assets/9b85729f-62f6-4307-aa1c-a2410f16e401" />
+<img width="871" height="1364" alt="image(4)_compressed" src="https://github.com/user-attachments/assets/490c06f0-90a2-45c6-b3a7-77c92f24a77c" />
+<img width="872" height="1254" alt="image(5)_compressed" src="https://github.com/user-attachments/assets/abde3ea7-3512-4439-9399-ed74b0c53c66" />
+<img width="888" height="1227" alt="image(6)_compressed" src="https://github.com/user-attachments/assets/1aee6217-9d0e-4afc-a03c-f0f1b9beba8e" />
+
+
 
 <img width="884" height="1552" alt="长截图_20260603_161118" src="https://github.com/user-attachments/assets/cb42fd58-e34b-4ff9-b848-6d2a943ace93" />
 <img width="882" height="1250" alt="局部截取_20260603_161350" src="https://github.com/user-attachments/assets/2dfdad52-163a-4246-95fa-f1e0ce5bcc2f" />
