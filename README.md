@@ -14,12 +14,16 @@ https://awakeningtheworld.cn
 
 https://maipdf.cn/file/dt6a1861e47b466/pdf
 
+[唯一的宇宙和人类真相 中国神话 历史真相 人物故事（新）.pdf](https://awakeningtheworld.cn/wp-content/uploads/2025/08/367e9a1b5e58fafe4bba5e8af81e6988ee79a84e5ae87e5ae99e79c9fe79bb88.0.pdf)
+
 此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
 
 网盘 https://www.123684.com/s/SYDhjv-8T7x
 
+<img width="4096" height="5461" alt="img_v3_0212a_b1694ba3-c4a2-457c-b8ab-9f5b6405360g" src="https://github.com/user-attachments/assets/4c4f8d4b-8431-4bdf-8e1f-42deea4f3b29" />
+<img width="4096" height="5461" alt="img_v3_0212a_3965a845-1139-405f-8c79-595fdb3f2d3g" src="https://github.com/user-attachments/assets/fa5f9d95-dbf4-4a32-8f37-7cc201c0cc76" />
 
-[唯一的宇宙和人类真相 中国神话 历史真相 人物故事（新）.pdf](https://github.com/user-attachments/files/28540658/default.pdf)
+<img width="862" height="2524" alt="长截图_20260603_155636" src="https://github.com/user-attachments/assets/62b40f32-7885-4d42-b639-9f2f9291fdf0" />
 
 
 ### 我们的元神
@@ -59,6 +63,8 @@ https://b23.tv/M4FMnux
 谎言 https://b23.tv/9U2Yzrq
 
 关于太阳晒伤 https://b23.tv/vCorf5Z
+
+<img width="862" height="2524" alt="长截图_20260603_155636" src="https://github.com/user-attachments/assets/62b40f32-7885-4d42-b639-9f2f9291fdf0" />
 
 
 ### 救世
