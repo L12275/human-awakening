@@ -12,14 +12,13 @@ https://awakeningtheworld.cn
 
 唯一的宇宙和人类真相.pdf（完整阅读版）
 
-https://maipdf.cn/file/dt6a1861e47b466/pdf
-
 [唯一的宇宙和人类真相 中国神话 历史真相 人物故事（新）.pdf](https://awakeningtheworld.cn/wp-content/uploads/2025/08/367e9a1b5e58fafe4bba5e8af81e6988ee79a84e5ae87e5ae99e79c9fe79bb88.0.pdf)
 
 此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
 
 网盘 https://www.123684.com/s/SYDhjv-8T7x
 
+内容预览
 <img width="862" height="2524" alt="image_compressed" src="https://github.com/user-attachments/assets/99bfda10-5512-4731-b1be-d440b3a6669b" />
 <img width="4096" height="5461" alt="20260603-154051_compressed (1)" src="https://github.com/user-attachments/assets/d732f118-674f-4888-adc4-0bf2b65752ea" />
 <img width="4096" height="5461" alt="20260603-154104_compressed (1)" src="https://github.com/user-attachments/assets/33e3e7b0-214c-4210-9bb4-4639a5e25b97" />
