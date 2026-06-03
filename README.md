@@ -331,14 +331,17 @@ https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf99
 
 以下文件都在网盘里
 
-<img width="4096" height="5461" alt="20260603-191352_compressed" src="https://github.com/user-attachments/assets/231adab0-8a7c-42c3-82a1-6f80c0890ba7" />
+<img width="631" height="623" alt="20260603-192119_compressed" src="https://github.com/user-attachments/assets/16c07275-ee23-4b79-86f0-e916f71cef75" />
 
-文件内容预览，非常有必要阅读
+
+文件内容预览
+
+启明星录音，是直播录制的转写文字，非常有必要阅读
 
 <img width="4096" height="5461" alt="20260603-191827_compressed" src="https://github.com/user-attachments/assets/64e5eac0-9bcc-4cb5-8820-5e49d460e9cb" />
+<img width="4096" height="5461" alt="20260603-191436_compressed" src="https://github.com/user-attachments/assets/a6aff477-117e-46d1-ad2f-d670bad3d949" />
 <img width="4096" height="5461" alt="20260603-191540_compressed" src="https://github.com/user-attachments/assets/ed899c0c-1a8f-4ca4-8c59-f0e247745f03" />
 <img width="4096" height="5461" alt="20260603-191524_compressed" src="https://github.com/user-attachments/assets/c51230e4-ad71-47f7-95a3-6285b4f18942" />
-<img width="4096" height="5461" alt="20260603-191436_compressed" src="https://github.com/user-attachments/assets/a6aff477-117e-46d1-ad2f-d670bad3d949" />
 <img width="4096" height="5461" alt="20260603-191352_compressed" src="https://github.com/user-attachments/assets/96a08fb8-adc2-42de-9688-56e9fec88d53" />
 
 
