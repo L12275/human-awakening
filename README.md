@@ -246,7 +246,7 @@ https://b23.tv/aOsvMGK
 【玄幻答疑—致中立者】https://b23.tv/FbXyYqc
 
 
-### 更多视频博主：
+### 更多元神视频博主：
 
 【要问心呀的个人空间-哔哩哔哩】 https://b23.tv/qyk3amB
 
