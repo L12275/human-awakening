@@ -297,9 +297,6 @@ https://b23.tv/aOsvMGK
 
 此网站里的文档与PDF已全部下载到网盘和仓库，可下载阅读。
 
-网盘 https://www.123684.com/s/SYDhjv-8T7x
-
-https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf994280244/pan
 
 
 ### 公众号文章合集阅读
@@ -324,5 +321,26 @@ https://mp.weixin.qq.com/s/4ajfUn97t8V_o_RP_vNgYw
 https://mp.weixin.qq.com/s/En7d5lzC2PFu1y9MjwMWEg
 
 https://mp.weixin.qq.com/mp/appmsgalbum?__biz=MzkzMDY5NTM2NA==&action=getalbum&album_id=3512323816774942728&scene=126#wechat_redirect
+
+
+### 网盘文件阅读
+
+https://www.123684.com/s/SYDhjv-8T7x
+
+https://github.com/L12275/human-awakening/tree/ba00452ab2614738c56f1196ed714bf994280244/pan
+
+以下文件都在网盘里
+
+<img width="4096" height="5461" alt="20260603-191352_compressed" src="https://github.com/user-attachments/assets/231adab0-8a7c-42c3-82a1-6f80c0890ba7" />
+
+文件内容预览，非常有必要阅读
+
+<img width="4096" height="5461" alt="20260603-191827_compressed" src="https://github.com/user-attachments/assets/64e5eac0-9bcc-4cb5-8820-5e49d460e9cb" />
+<img width="4096" height="5461" alt="20260603-191540_compressed" src="https://github.com/user-attachments/assets/ed899c0c-1a8f-4ca4-8c59-f0e247745f03" />
+<img width="4096" height="5461" alt="20260603-191524_compressed" src="https://github.com/user-attachments/assets/c51230e4-ad71-47f7-95a3-6285b4f18942" />
+<img width="4096" height="5461" alt="20260603-191436_compressed" src="https://github.com/user-attachments/assets/a6aff477-117e-46d1-ad2f-d670bad3d949" />
+<img width="4096" height="5461" alt="20260603-191352_compressed" src="https://github.com/user-attachments/assets/96a08fb8-adc2-42de-9688-56e9fec88d53" />
+
+
 
 收藏此页面，你可以转发给家人朋友阅读，余生有元神作伴
