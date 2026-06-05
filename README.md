@@ -81,6 +81,8 @@ https://b23.tv/M4FMnux
 
 灵儿 https://b23.tv/dBIbcpl
 
+炎帝和黄帝 https://b23.tv/droTTbN
+
 昊俊 https://b23.tv/uu1GGoc
 
 黄帝 https://b23.tv/iMUyQw0
