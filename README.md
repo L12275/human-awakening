@@ -51,6 +51,8 @@ https://b23.tv/M4FMnux
 
 元神回归 https://b23.tv/fN9P2kB
 
+觉醒的光者 https://b23.tv/6kuYfB6
+
 元神的外貌 https://b23.tv/2ya598O
 
 元神分男女，不生孩子，爱情永恒 https://b23.tv/tacWjc9
